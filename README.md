@@ -2,7 +2,7 @@
 
 🚀 Freelance Website Developer & Designer on Fiverr
 💻 1 year of coding experience and growing every day
-🎓 16 years old, passionate about building for the web
+🎓 16 years old IBDP Student, passionate about building for the web
 
 ### 🛠️ What I do
 - Building responsive, modern websites

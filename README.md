@@ -1,6 +1,6 @@
 # Hi there, I'm Marios 👋
 
-🚀 Freelance Website Developer & Designer on Fiverr
+🚀 Freelancer Website Developer & Designer on Fiverr
 💻 1 year of coding experience and growing every day
 🎓 16 years old IBDP Student, passionate about building for the web
 

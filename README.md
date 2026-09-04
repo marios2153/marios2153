@@ -29,7 +29,7 @@
 ### 🌐 Website & Freelance
 🔗 Portfolio: [immarios.dev](https://immarios.dev)
 🟢 Hire me on Fiverr: [Check my gigs](https://www.fiverr.com/s/d0p3Qr2?utm_source=_Mobile)
-
+🔵Discord: [View Profile](https://discord.com/users/marios_2153)
 ---
 ⭐️ Always learning, always building.
 
